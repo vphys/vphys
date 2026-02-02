@@ -1,4 +1,4 @@
-### Hi there 👋
+### full time hobbyist
 
 <!--
 **ledmics/ledmics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
