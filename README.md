@@ -1,2 +1,2 @@
-# // suckless
+# // ideologically obtuse 
 software maximalist
